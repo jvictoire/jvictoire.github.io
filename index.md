@@ -1,4 +1,2 @@
-# John Smith
+# Juliette Victoire
 Rennes
-# Juliette Victoire
-# Juliette Victoire
